@@ -1,1 +1,1 @@
-## Los ejercicios de hoy los encontrará en la carpeta "Ejercicios 25 de Agosto ^^
+## Los ejercicios de hoy los encontrará en la carpeta "Ejercicios 25 de Agosto" ^^
